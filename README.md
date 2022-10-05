@@ -1,4 +1,4 @@
-# rainbow-sus
+# Rainbow Sus
 
 ඞ
 
